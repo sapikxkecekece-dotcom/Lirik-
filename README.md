@@ -1,0 +1,2 @@
+# Lirik-
+Baru belajar 
